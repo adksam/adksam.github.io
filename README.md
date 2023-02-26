@@ -1,1 +1,1 @@
-# adksam.github.io
+# adksam.io
